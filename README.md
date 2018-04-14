@@ -9,3 +9,7 @@ L'ho visto e mi sono emozionato
 ### Vuoi incontrarlo anke tU??11!1
 
 Vieni al Giordano Bruno
+
+### Occhio però!
+
+E' già fidanzato...
