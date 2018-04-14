@@ -12,4 +12,4 @@ Vieni al Giordano Bruno
 
 ### Occhio però!
 
-E' già fidanzato...
+Se non ti iscrivi si imbufalisce, quindi CLICCA SUL LINK
