@@ -1,6 +1,6 @@
 ## Quanto è figo Leo?
 
-Leone è veramente [bello](https://www.youtube.com/channel/UCXa-g17I9CbhIxNvcV7Q67A)
+Leone è veramente [bello](https://www.youtube.com/channel/UCXa-g17I9CbhIxNvcV7Q67A) <<<---CLICCA SUL LINK!!!
 
 ### Che figoooo
 
