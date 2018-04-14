@@ -12,4 +12,4 @@ Vieni al Giordano Bruno
 
 ### Occhio però!
 
-Se non ti iscrivi si imbufalisce, quindi CLICCA SUL LINK
+Se non ti iscrivi si imbufalisce, quindi [CLICCA SUL LINK](https://www.youtube.com/user/FedezChanneL)
