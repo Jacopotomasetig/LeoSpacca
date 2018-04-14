@@ -1,6 +1,6 @@
 ## Quanto è figo Leo?
 
-Leone è veramente bello
+Leone è veramente [bello](https://www.youtube.com/channel/UCXa-g17I9CbhIxNvcV7Q67A)
 
 ### Che figoooo
 
