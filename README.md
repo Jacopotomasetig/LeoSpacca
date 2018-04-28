@@ -6,6 +6,10 @@ Leone è veramente [bello](https://www.youtube.com/channel/UCXa-g17I9CbhIxNvcV7Q
 
 L'ho visto e mi sono emozionato
 
+### E' proprio un vero leone feroce
+
+Non ci credi? Guarda [QUI](https://imgur.com/gallery/eDAN2Vj)
+
 ### Vuoi incontrarlo anke tU??11!1
 
 Vieni al Giordano Bruno
